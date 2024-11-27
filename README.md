@@ -3,7 +3,7 @@
 
 **SakuraRK/林树平** is(are) a ✨ Special soul(s) living on earth! ✨
 
- 🔭 I’m currently working on Home
+ 🔭 I’m currently working at Home
  
  🌱 I’m currently learning Digital Media Arts
  
