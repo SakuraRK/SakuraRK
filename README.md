@@ -7,7 +7,7 @@
  
  🌱 I’m currently learning Digital Media Arts
  
- 👯 I’m looking to collaborate on Earth
+ 👯 I’m looking for collaborate on milky way/solar system
  
  🏫 I graduated from a polytechnic college in Guangdong, China mainland
  
